@@ -1,6 +1,6 @@
 # IZRAEL
 
-to wspaniały kraj popierany przez niemalże cały świat!
+HEHEHEHEHEEH to wspaniały kraj popierany przez niemalże cały świat!
 
 kraje które **NIE** lubią *izraela*:
 
